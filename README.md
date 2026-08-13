@@ -39,4 +39,4 @@ My projects will be published here as I build them.
 
 ## 📍 Location
 
-New Jersey | Relocating to North Carolina
+New Jersey | Open to Relocation
